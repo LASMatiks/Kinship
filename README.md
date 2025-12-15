@@ -38,17 +38,7 @@ Email: lasmatiwane17@gmail.com
 
 Phone: 063 084 9648
 
-Location: Gauteng, South Africa
-
-Your Name 
-Name
- Your Email 
-Email
- Message 
-How can we help?
- Send Message
-Kinship (Pty) Ltd logo small
-Kinship (Pty) Ltd
+Location: Eastern Cape, South Africa
 © 2025 Kinship. All rights reserved.
 Tagline: Bringing Family Together
 Built with care and unity.
